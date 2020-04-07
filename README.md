@@ -1,1 +1,1 @@
-# NZLockdownPrivacyPolicy
+# NZLockdown Privacy Policy
